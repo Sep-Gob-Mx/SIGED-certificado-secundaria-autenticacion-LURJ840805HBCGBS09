@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LURJ840805HBCGBS09
+LURJ840805HBCGBS09
